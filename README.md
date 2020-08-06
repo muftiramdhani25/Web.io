@@ -1,1 +1,1 @@
-# https://muftiramdhani25.github.io/
+# muftiramdhani25.github.io/
